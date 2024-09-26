@@ -1,0 +1,1 @@
+Mandatory projects delivered in order to achieve certificate.
